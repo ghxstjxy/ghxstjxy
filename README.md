@@ -11,7 +11,7 @@ link for screenreader friendly https://rentry.co/ghxstgithub
 
 ꩜ I can be very energetic at times, especially talking about interests and special interests! I'll try to mask my energy but it can take over very easily ...
 
-꩜ I am part of the **LGBT community**, I ship characters a lot (mainly gay ships) and I don't believe in god, if you don't like that, **get out. I won't tolerate any disrespect because of who I or my friends are.
+꩜ I am part of the **LGBT community**, I ship characters a lot (mainly gay ships) and I don't believe in god, if you don't like that, **get out**. I won't tolerate any disrespect because of who I or my friends are.
 
 ![rina shy](https://media1.tenor.com/m/ctvZhc6AIg4AAAAd/rina-tennoji-love-live.gif)
 
