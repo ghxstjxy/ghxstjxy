@@ -37,6 +37,6 @@ You can probably tell by my spelling of "favourite" that I am a tea drinker ... 
 
 ꩜ That's all I can think of! Click the links in my profile for more detail in my interests or specific details about me!
 
-![mitsuba](https://media1.tenor.com/m/EF4enevK7YIAAAAd/tbhk-jshk.gif)
+![mitsuba](https://media1.tenor.com/m/14K5CrJu9k8AAAAd/tbhk-jshk.gif)
 
 ✧ Thank you for reading this far and I hope you have a good rest of your day!
