@@ -76,7 +76,9 @@
  ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ 
 ‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ x weird vtuber fandom<br>
  ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ 
-‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ x [basic dni](https://dni-criteria.carrd.co/)‎
+‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ x [basic dni](https://dni-criteria.carrd.co/)  
+ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ 
+ ‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎x IRLs and yumeshippers‎
 
 <p align="center">
 <img src="https://i.postimg.cc/zf55pczx/IMG_8432.png" />
