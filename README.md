@@ -1,4 +1,4 @@
-‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎‎‎‎ " humans and apparitions should just be however they want. if that would break the world, then it's better off broken "
+‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎‎ " humans and apparitions should just be however they want. if that would break the world, then it's better off broken "
 <p align="center">
 <img src="https://i.postimg.cc/hGrnY1hc/IMG_8431.png" />
 </p>
